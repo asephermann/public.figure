@@ -1,0 +1,1 @@
+Taylor Swift is an American singer-songwriter currently in a "new era" following the conclusion of her record-breaking Eras Tour in late 2024. As of February 2025, she has been named the IFPI Global Artist of the Year for the sixth time. 
