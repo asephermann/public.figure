@@ -1,0 +1,1 @@
+Limbad (born Salim Babad) is a famous Indonesian magician and actor who rose to national prominence after winning the second season of the talent show The Master in 2009. He is widely known for his "extreme" magic style (fakir magic) and his unique stage persona of never speaking in public. 
