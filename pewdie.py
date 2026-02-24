@@ -1,0 +1,1 @@
+Felix Arvid Ulf Kjellberg, better known as PewDiePie, is a Swedish YouTuber who became a global icon of internet culture through his gaming "Let's Play" videos and comedy content. As of early 2026, he remains one of the most-subscribed individuals on the platform, though he has transitioned into a "semi-retired" lifestyle focused on his family in Japan. 
