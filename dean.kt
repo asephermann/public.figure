@@ -1,0 +1,1 @@
+DeanKT (real name Aldean Tegar Gemilang) is a prominent Indonesian content creator, live streamer, and former esports executive. He is widely recognized for his humorous personality and holds the record for one of the highest YouTube membership counts in Indonesia.
