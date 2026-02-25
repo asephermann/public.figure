@@ -1,0 +1,1 @@
+Dede Sunandar is an Indonesian comedian and actor who has recently been in the spotlight due to his career shift and personal challenges following a failed bid for a legislative seat in the 2024 elections.
